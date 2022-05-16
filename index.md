@@ -1,4 +1,4 @@
-## Welcome to FoodMood tbe northern alliance
+## Welcome to FoodMood the northern alliance
 
 
 
